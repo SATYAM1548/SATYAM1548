@@ -8,4 +8,4 @@
  
 ## 📞 Contact Me 
 * Email: bindroosatyam@gmail.com
-* [@Linkedin](www.linkedin.com/in/satyam-bindroo-78906022a)
+* [@Linkedin](https://www.linkedin.com/in/satyam-bindroo-78906022a)
