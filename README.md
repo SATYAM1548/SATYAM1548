@@ -9,4 +9,4 @@
 ## 📞 Contact Me 
 * Email: bindroosatyam@gmail.com
 * [@Linkedin](https://www.linkedin.com/in/satyam-bindroo-78906022a)
-* Portfolio:(https://satyam-bindroo.netlify.app/)
+* Portfolio:[satyam](https://satyam-bindroo.netlify.app/)
